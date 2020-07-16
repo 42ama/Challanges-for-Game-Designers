@@ -1,1 +1,1 @@
-# Challanges-for-Game-Designers
+# Challanges for Game Designers
